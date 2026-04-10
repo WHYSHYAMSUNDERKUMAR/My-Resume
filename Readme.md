@@ -40,7 +40,7 @@ Published paper on:
 
 ## 📫 Contact Me
 - 📧 Email: shyamsunderkumar4195@gmail.com  
-- 🔗 LinkedIn: https://linkedin.com/in/your-link  
+- 🔗 LinkedIn: https://linkedin.com/in/whyshyamsunderkumar  
 - 💻 GitHub: https://github.com/WHYSHYAMSUNDERKUMAR  
 
 ---
